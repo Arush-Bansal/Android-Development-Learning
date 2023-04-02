@@ -1,0 +1,1 @@
+![summary of this lesson](screenshot.426.jpg)
